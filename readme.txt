@@ -15,5 +15,3 @@ qqqqqqqqqqqqqqq
 wwwwwwwwwwwwww
 eeeeeeeeeeeeeeeeeeeeeee
 
-yyyyyyyyyyyyyyyyyyyyyyyy
-
